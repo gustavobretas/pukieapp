@@ -1,2 +1,0 @@
-# serieconomica
-Domain For Sale
